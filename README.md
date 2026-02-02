@@ -1,4 +1,3 @@
-# Professional-Services--Digital-Marketing
 # Services for Home and Businesses
 #Security Services - 1
 [How Integrated Security Solutions Can Safeguard Your Business](https://flexguardsecurity.ca/how-integrated-security-solutions-can-safeguard-your-business/)
